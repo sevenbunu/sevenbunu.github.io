@@ -1,1 +1,1 @@
-My personal site for the next 24 hours
+My personal site
